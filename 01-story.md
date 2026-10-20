@@ -1,0 +1,3 @@
+# The last red tomato
+
+On the outskirts of Kazan, Russia, Anya ran after a raccoon that had stolen the last ripe tomato from her grandmother’s greenhouse; beneath its striped tail, the animal dragged a paper label reading “sell today.” She caught up beside a cactus her grandmother kept as a reminder that survival meant saving what others wasted. Instead of taking the tomato back, Anya noticed a whole crate softening outside the locked market, so she ran home, fetched her bicycle, and delivered the sound fruit to a neighbour who cooked supper for the street. By nightfall the raccoon had escaped, the cactus had gained a red ribbon, and Anya had discovered that sometimes food did not need a longer life—only a faster route to someone who wanted it.
